@@ -1,5 +1,5 @@
 # Flan banane chocolat
-### protéiné, sans farine, sans gluten, sans sucre, pauvre en fodmap
+### protéiné, sans farine, sans gluten, sans sucre, pauvre en fodmap, dessert, gâteau
 
 ## Ingrédients
 - 4 bananes
